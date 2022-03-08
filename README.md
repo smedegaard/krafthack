@@ -1,1 +1,0 @@
-# Krafthack 2022
